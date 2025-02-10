@@ -34,4 +34,8 @@ Strengthen Partnerships with High-Revenue Insurers like Aetna to boost patient r
 Address Financial Needs of Younger Patients (18-30) with flexible payment plans and educational support on insurance benefits.
 Optimize Self-Pay Revenue by offering more payment flexibility and financial education to this crucial group.
 
+![image](https://github.com/user-attachments/assets/e86e9bce-e462-4667-82e8-4682c5479a90)
+
+
+
 
